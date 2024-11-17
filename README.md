@@ -1,0 +1,7 @@
+- Hello everyone! 😀
+- My name is @cn-ywcw, aged 20.
+- I pride myself on being a helpful boy, always ready to leng a helping hand to those in need.
+- Sports are my passion and football holds a specil place in my heart.
+- English tops my list of favourite subjects, because it opens doors to different cultures and knowledge.
+- I am excited to meet you and look forward to making friend with you!
+- What about you?
